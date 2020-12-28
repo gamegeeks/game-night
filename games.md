@@ -1,0 +1,33 @@
+  # 2021
+  
+-  [ ] Squadrons 
+-  [ ] No man sky
+-  [ ] Plants vs Zombies
+-  [ ] Tetris effect connected
+-  [ ] Minecraft dungeons
+-  [ ] Gears
+-  [ ] Fortnite
+-  [ ] Grounded
+-  [ ] Destiny2 
+-  [ ] Dauntless
+-  [ ] Burnout paradise
+-  [ ] Human fall flat/totally reliable delivery service
+-  [ ] Spellbreak 
+-  [ ] Forza 
+-  [ ] Ace combat?
+-  [ ] Man of Medan
+-  [ ] Fallout76
+-  [ ] Five nights at freddys
+-  [ ] Halo
+-  [ ] Marvel vs Capcom
+-  [ ] Monster hunter
+-  [ ] Overcooked2
+-  [ ] River city girls
+-  [ ] Sea of thieves
+-  [ ] Secret neighbor
+-  [ ] Streets of rage 4
+-  [ ] Sunset overdrive
+-  [ ] Tekken 7
+-  [ ] Tourysts 
+-  [ ] Warhammer vermintide
+-  [ ] Wilmots warehouse
