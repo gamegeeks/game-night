@@ -1,5 +1,6 @@
   # 2021
   
+-  [ ] Deep Rock Galactic
 -  [ ] Squadrons 
 -  [ ] No man sky
 -  [ ] Plants vs Zombies
